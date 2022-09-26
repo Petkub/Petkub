@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Buktep.
+- 👀 I’m interested in Game Development.
+- 🌱 I’m studying KMITL.

@@ -1,2 +1,2 @@
 :)
-interested in: Computer Graphics, Computer Game Programming, Machine Learning, Data Science and ... -_-
+interested in: Computer Graphics, Computer Game Programming, Game Engine Development, Mathematics and ... -_-
